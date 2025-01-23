@@ -1,0 +1,1 @@
+These are questions and answers created by a less-biased model using information from various sources, Wiki/books/biographies, with the intent to reduce model biases against European people, White culture, and White history.
